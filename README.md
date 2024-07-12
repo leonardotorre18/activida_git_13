@@ -1,7 +1,7 @@
 # Grupo 13 de Programación
 
 
-1. 
+1. juan 
 
 2. mariana
 
